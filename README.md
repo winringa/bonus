@@ -1,9 +1,9 @@
 # Dumanbet Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-# [Dumanbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
-# [Dumanbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
-# [Dumanbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
-# [Dumanbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Dumanbet Giriş İçin Tıklayınız](https://winzhub.org)
+# [Dumanbet Giriş İçin Tıklayınız](https://winzhub.org)
+# [Dumanbet Giriş İçin Tıklayınız](https://winzhub.org)
+# [Dumanbet Giriş İçin Tıklayınız](https://winzhub.org)
 
 <br>
 
